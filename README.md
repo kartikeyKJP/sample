@@ -1,2 +1,2 @@
 # sample
-doing it for the first time.
+Everything thing will be fine in the end!
